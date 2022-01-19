@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rooster194
-- 👀 I’m interested in Researcha and 3d Printing
+- 👀 I’m interested in Researcher and 3d Printer
 - 🌱 I’m currently doing a PhD looking at plastic weathering
 - 💞️ I’m looking to collaborate on ... I'll get back to you ...
 - 📫 How to reach me at rooster1.94@gmail.com
